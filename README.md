@@ -1,1 +1,0 @@
-# amalekia-csc453_lab0
